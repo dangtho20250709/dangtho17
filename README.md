@@ -10,4 +10,4 @@
 
 本平台提供丰富的日韩AV无码精品内容，涵盖各种成人小说及视频资源。用户可浏览详细的内容介绍和演员信息，方便快速选择喜欢的视频。系统支持高清流畅播放，并能根据网络速度智能调整画质，保证良好的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangtho20250709/dangtho17 ）</span>
